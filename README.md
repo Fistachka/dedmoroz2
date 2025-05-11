@@ -7,7 +7,9 @@
 На зеленой солнечной опушке
 Прыгают зеленые лягушки
 И танцуют бабочки-подружки,
-Расцветает все кругом.<br><br>
+Расцветает все кругом.
+
+Предыдущий урок: stolbitsa.com/fistachka/dedmoroz<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -18,5 +20,7 @@
 Na zelenoj solnechnoj opushke
 Prygayut zelenye lyagushki
 I tancuyut babochki-podruzhki,
-Rascvetaet vse krugom.<br><br>
+Rascvetaet vse krugom.
+
+Previous lesson: stolbitsa.com/fistachka/dedmoroz<br><br>
 
